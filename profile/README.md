@@ -1,4 +1,4 @@
-# The Flint Crew  🏴‍☠️ 📡 🏴‍☠️
+# The Flint Crew  📡 🏴‍☠️ 📡 🏴‍☠️ 📡
 
 Yo-ho, Flint Crew, hoist the data high,  
 From ASKAP's gaze to the boundless sky!  
